@@ -132,3 +132,4 @@ dmypy.json
 # for sphinx build
 build/
 
+.DS_Store
