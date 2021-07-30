@@ -17,9 +17,10 @@
 
 # -- Project information -----------------------------------------------------
 
-project = "Zhang Xiangqian's Articles Of E.T"
+project = "Zhang Xiangqian's Articles About E.T Technology"
 copyright = '2021, Zhang Xiangqian'
 author = 'Zhang Xiangqian'
+html_title = "Zhang Xiangqian's Articles About E.T Technology"
 
 # The full version, including alpha/beta/rc tags
 release = '0.0.1'
