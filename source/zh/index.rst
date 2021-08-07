@@ -4,6 +4,7 @@
 .. toctree::
     :hidden:
     :glob:
+    :numbered:
 
     articles/**/*
 
