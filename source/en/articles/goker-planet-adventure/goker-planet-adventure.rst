@@ -1,307 +1,46 @@
 The Adventures Of Goker Planet
 ====================================
 
-Also known as "a month's experience of Anhui farmers on the outer planet"
+Zhang Xiangqian
 
+ 
 
-About the author:
-
-Zhang Xiangqian, from Lujiang County, Anhui Province, male, farmer, junior high school level.
-
-He was born on August 26, 1967 in Huying, Wangdu brigade, Niushou commune, Jinniu District, Lujiang County which was renamed group 4, Beiwei village, Guohe Town, Lujiang County later.
-
-Now he has moved to No. 111, erlongxin street, Tongda Town, Lujiang County, 3 kilometers away，making a living by welding and repairing bicycles.
-
-
-Author's Tel: 18714815159
-
-Wechat: zhxq1105974776
-
-Email: zzqq2100@163.com
-
-
-
-Note:
-
-1. There is disgusting content in it. Don't let minors read it.
-
-2. Because of the spread of my one month experience on the outer planet, I was blocked by many websites many times. My wechat was blocked many times too. Thanks to the secret help of great people, I saved my wechat account. I was summoned and dealt with by the public security and was warned by telephone by relevant units for many times, asking me to write in the form of science fiction instead of recording facts.
-
-3. Although this article appears in front of you in the form of science fiction, reading this article can still make you understand the real alien world to a certain extent and subvert the false alien world you see on the Internet.
-
-4. In the current environment, such articles can only be disseminated in this form. I hope the majority of netizens can understand it.
-
-
-.. 作者前言
-
-
-目录：
+Contents:
 
 .. contents:: :local:
 
-	      
-.. 一，从家中被带走。
-
-   二，飞行途中 聊飞碟
-
-   三，果克星球超光速通讯
-
-   四，到了果克星球的飞碟仓库
-   
-   五，初识果克星球的全球公众信息网
-   
-   六，踏上果克星球大街
-   
-   七，见识瞬移和全球公众运动网
-   
-   八，有趣的果克星人。
-   
-   九，果克星人为什么要绑架地球人？
-   
-   十，宇宙中的陆基人种和水基人种
-   
-   十一，果克星人的奇怪性行为
-   
-   十二，诺顿谈宇宙所有生命的起源
-   
-   十三，宇宙中有人的星球很多吗？
-   
-   十四，果克星球的宗教
-   
-   十五，初次接受体检和实验
-   
-   十六，果克星人不讲德道
-   
-   十七，我的外星女友
-   
-   十八，云中漫步。
-   
-   十九，海底潜游。
-   
-   二十，被海底蛇人入侵
-   
-   二十一，参观果克星球人工场控制中心。
-   
-   二十二，光线虚拟人
-   
-   二十三，果克星球的时空冰箱
-   
-   二十四，参观果克星球的人体复制工厂
-   
-   二十五，果克星球的新型人种---金属人
-   
-   二十六，果克星球的金钱
-   
-   二十七，果克星球的领导
-   
-   二十八，虚拟旅行。
-   
-   二十九，体验远程性爱。
-   
-   三十，果克星球的三维虚拟伴侣
-   
-   三十一，性爱场馆
-   
-   三十二，遇电妹条妹受伤。               
-   
-   三十三，参观邻近星球
-   
-   三十四，在水星被劫持。
-   
-   三十五，献给海底两栖巨人的礼物
-   
-   三十六，拜见果克星系科学大佬
-   
-   三十七，果克科学家谈人的意识、灵魂、轮回
-   
-   三十八，回家。 
 
 
-
-作者前言
+Chapter 1. Taken away from home
 ----------------------------------------
 
+In the early summer when I was 19, the weather was not very hot. I slept alone in my room.
 
-大约在七、八岁时，有一次，我一个人在一块沙地上放鹅，突然看到有几团气雾状的东西在我眼前快速地移动，其中有一团猛的扑向我，当时我觉得头嗡的一声，眼前一黑，人不由自主地蹲下去，好长时间才清醒过来，眼前的气雾消失得干干净净。
+I didn't lie down for a long time. Half asleep and half awake, I suddenly felt that the room became red. After I was awakened, I got up from the bed and stood by the bed.
 
-我当时也没有看到飞碟，只是之前看到西边的天空闪一下红光，当时大概是下午到傍晚之间，四五点钟的样子，红光出现正好在太阳附近，而当时太阳附近又有许多红色的云霞，所以没有在意有没有飞碟之类的东西。
+I saw a glowing liquid oozing from the wall. These liquids emitted dark red mixed with some snow blue light. When these liquids completely penetrated into the house from the wall, they gradually turned into several human shapes.
 
-这是我小时候遇到的一个最奇怪的事情，至今记忆深刻。
+These people's bodies look like a combination of countless flying red insects, which are disturbed quickly and disorderly.
 
-大约从十二、三岁时开始，我夜里老是做梦，梦见自己生活在另一个星球上。在这个星球阳光好像不是很强，光线偏蓝色。这个星球上几乎没有植物，而且表面上好像不适宜居住人，人都住在很深的地下面。人们乘坐着极快的交通工具，能够快速地来回地上、地下。
+Strong fear made me tremble constantly, my hands, feet and throat became stiff, and my whole body didn't listen to the command of my brain.
 
-在我脑海里印象最深的是这个星球上无论地上、地下都建有大量特别高大复杂的建筑物，这些建筑物大多数是具有铅灰色调的金属制成，整个星球颜色单调沉闷。
+These mysterious people who came through the wall did not speak, but a standard male voice sounded in my mind. He said to me, "go out with us".
 
-一个人偶而做这样的梦，没有什么奇怪的，但是，数年、长期的做这样的梦，不得不让我思考，这一切背后的原因。
+At this time, I am still very sober and remember clearly that this is not a dream.
 
-本人在小时候多次遭遇奇怪的事情，现在猜测就是遇见了外星人。
+I was in a daze. Suddenly, I felt an invisible force pouncing on me from the front and controlling me in an instant. My head has a strong feeling of being filled with wood and things, such as being suddenly filled with liquid and fine sand.
 
-尤其是我小时候生了严重肾炎，那时候家庭极度贫困，经常饿肚子，家庭有成员曾经饿死，没有条件去医院治疗，在临死时候外星人救了我，这个记忆非常深刻。
+My consciousness became blurred and seemed to be strongly controlled by mysterious forces. My brain doesn't think and judge well. My whole body became unconscious, and all kinds of feelings seemed to be passivated. I feel my body floating and I can't walk steadily. I also gradually stopped shaking, and the feeling of fear was greatly reduced.
 
-还有一次害眼病，非常严重，持续半年时间，没有接受过治疗，一次都没有。只有母亲偶尔来过问一下，在我眼睛无法睁开的时候，她用唾液涂我的眼睛，开始有效果，后来就没有效果了。
+I saw them pass through the wall. The wall seemed translucent, and I followed them through the wall. After going out, I found myself barefoot, just wearing a T-shirt and underpants, and my image was ruined.
 
-但是她没有一分钱，无法带我去医院治疗。那时候家庭贫困，人又都很愚昧麻木，很多孩子死了，家庭成员的悲伤程度，还不如现在死了一个小猫、小狗。
+When I was walking through the wall, I was particularly impressed by the earthy smell of the wall. In addition, there was a wonderful feeling in all parts of my body. I felt that countless tiny sand particles rubbed gently in my body, accompanied by a pleasant feeling.
 
-我最后接近失明，只能整天坐在床边，完全看不见走路，也是他们来了治好了我的眼睛。
+The feeling of going through the wall is that every molecule of the wall passes through my body evenly, rather than the one in which the wall cracks a gap for people to pass through. The speed of walking through the wall is not very fast. It's almost the same as walking.
 
-我小时候多次被神秘人带走，这些神秘人每次来的时候，我都有很强的预感，心里说，他们要来了，要来了，果然就真的来了。
+When I was about to come out of the wall, I had a wooden pain in my heel. After I came out, the wooden pain disappeared immediately.
 
-他们来的时候，首先都是看到墙壁发红，都是夜晚把我从床上带走，直接从墙壁里穿过去，早上送回来，也是送到我的床上。我也一度怀疑这是不是在做梦。
-
-有一次，他们送我回来，我说，就把我放到门前的草堆上就行了。第二天，我果然就睡在草堆上，我起来回到家里，母亲已经起来了，开了门，她在扫地，没有问我从那里来。
-
-多年以后，我也在内心怀疑自己小时候这一切遭遇是不是在做梦？但是，睡在草堆上的事情，千真万确，使我坚定的否定了这一切遭遇都是在做梦的念头。
-
-在1985年初夏，我19岁时候再次【也是最后一次】遇到外星人，踏上外星球旅行了一个月时间。
-
-这一次我的记忆同样不是很清晰，可能是记忆受到了他们的干扰。但是，由于我已经成年，有一定的思考和判断力，而且看过与外星人绑架有关的杂志，并且在外星球上获得的信息量很大。
-
-所以，这一次旅行获得很多有价值的信息，也对我以后人生有巨大影响。否则我就是一个思想有点保守的普普通通的农民，人生就是娶妻生子，平平淡淡的过一生，不可能有能力在网上写了那么多的文章，特别是关于宇宙奥秘、前沿物理方面的文章。
-
-现在我仍然不清楚是怎么得到这些关于宇宙奥秘、前沿物理方面的知识，但是，可以肯定的是与外星人有关。
-
-在我们地球上，一个人出门旅行，回来后回想旅行的经过，一般都是按照时间的先后，旅行经历的画面会在头脑中像放电影那样一一出现。
-
-可是我这一次旅行的记忆画面是不连续的，而且时间的先后可能都被打乱。不知道那些事情是先发生的，那些事情是后发生的。
-
-在他们的星球上，你上一秒钟可能在一个面临死亡威胁的恐怖场景中，他们的交通工具全球运动网在下一秒种可以把你送到一个安全的、温暖的床上，连进门、出门的过程都省略了。
-
-他们的社会是一个高度虚拟化的社会，常常使我分不清楚那些是虚拟场景，那些是真实场景。有时候真实的场景和虚拟场景可以随意的切换。
-
-和一般遇见外星人的情况有所不同，这一次在和外星人的接触中，我所获得的外星人很多信息，尤其是科学技术信息，不是外星人言语直接告诉我，或者其他方式交流、学习的那种。
-
-感觉好像是和外星人的意识互通了，就像有一个外星人的意识进入了我的意识中，我拥有一个外星人的部分记忆，后来通过慢慢回忆，才掌握的，
-
-也可能是他们用一种人工场扫描技术，通过场这种无形物质，向我大脑中输入许多信息的原因，就像我们的电脑下载一样。他们多次用人工场设备扫描我的大脑，是向我大脑输送知识，还是做其他实验，就不得而知了。
-
-不过，我获得的记忆信息，尤其是记忆画面是非常的多，串联起来，使这些记忆信息变得非常有价值。当然，这里面也有许多我自己至今也无法解释的秘密。
-
-本人遇到外星人事情在网上公布后，受到社会上很多人关注，上海宝山电视台曾经采访了我，但是，节目审查没有通过，所以节目没有在电视上播出。
-
-十几年前我就在网上陆续发布我遇到外星人的事情，我一直想写自己去外星球的旅行经历。但是，那时候我整天忙于生计，很少有时间上网。只是简单的描述一下自己在外星球的经历，发到网上。
-
-期间接到有关单位的警告电话和口头警告，要求我的外星球旅行见闻要以科幻小说来写，不得以真实事件的报告形式来写，以免引起公众不必要的恐慌。
-
-前几年我写了科幻小说形式的《果克星球奇遇》。
-
-.. image:: media/image1.jpeg
-   :alt: 《果克星球奇遇》.png
-   :width: 3.70833in
-   :height: 4.94792in
-
-因为无法发到网上，为了能够发到网上和读者见面，只好修改，后修改得面目全非才勉强发到网上，现在网上几乎又被删除完了。
-
-很多网友对此不满意，要求我写真实的外星球一个月的旅行见闻。
-
-但是，我们现在的大环境是不允许传播这些信息的，比前几年管束的更加严厉。为了传播这些信息，我曾经多次被公安传唤和处理。他们有一次还要求我写保证书，保证我以后不在网上发布这些文章。保证书当时我写了，估计保证书现在仍然在他们的手中。
-
-警察上门搜查我的资料和手机，给我家人带来了恐惧，把我岳母吓得哭起来，我妻子曾经为这个事情和我剧烈吵，骂我不该在网上发布这些乱七八糟的信息。
-
-我遭遇外星人的事情在网上披露出来，有的网友由于受到长期的单一信息的影响，形成一种顽固、僵死思维，无法接受这个事情，非常的反感和排斥。
-
-由于受到很多网友的举报，有的人坚持十几年时间来举报我，导致很多网站把我封杀，特别是我的新浪博客被封杀，很多重要的外星人的前沿物理理论方面的文章，由于没有备份，丢失造成了无法弥补的损失。
-
-频繁的举报导致我的微信多次被封，现在我的微信经常收到被举报的警告，微信有的功能现在仍然受到限制，微信支付经常被封。
-
-所以，这篇文章仍然以科幻的形式写，只是内容增加了一部分，描述详细了。
-
-看了这本书，相信大家对发达外星球的科技与生活、社会结构、外星人身体等，有一个大概的了解。
-
-我在外星球上，遭遇最多的事情是被性侵，记忆最多、最清晰的也是这方面的内容。这些方面内容如果完全写出来，可能被我们的社会所不能容忍，所以，这方面的内容，有的我记得很清楚，但是，不方便全部写出来。
-
-在外星球上，也谈到地球的未来、某大国未来走向、政治人物、圣人的出现相互关联等敏感内容。我想等我被社会承认，有一定的知名度、社会地位，才考虑写。现在写的话，我没有能力保护自己和家人，使自己和家人处于极为不利的地步。
-
-这个大家可能不好理解，我听到的一个事情【无法考证真实性啊】，几个人在说，他们村子有一个50多岁的寡汉子，中了500万大奖，有人说他发达了，终于可以娶到老婆了，可以知道女人身体的滋味了。
-
-结果没有几天，几个屁精【方言：小流氓】上门去敲诈他，说是借几个钱花花。寡汉说钱全部存入银行了，屁精们一个子没有捞到，很失望又很气愤，动手打寡汉子，下手重了点，竟然把寡汉给打死了。
-
-所以，我要考虑怎么能够保护自己，有些秘密不能过早的说出来。
-
-外星球旅行过程中，由于很多事情我自己都无法解释、搞不清楚，加上记忆模糊，希望网友能够理解。
-
-也希望一些网友能够以开放、包容的态度看这个事情，不能对自己不能接受的事情一味的指责、谩骂、举报。
-
-你们想一想，全球几十亿中，而且中国人最多，为什么不会有几个人遇到了奇怪的事情？
-
-本文在介绍外星人生活方面，披露出许多以前人们毫不知情的细节，可以满足一下大众对真实的外星球、外星人日常生活的好奇心，同时也可以给广大科研工作者一个启示和参考。
-
-我现在从网上搜一下，全世界宣称自己去过外星球的人很少，没有几个人。但他们描述自己在外星球的旅行见闻，和我的完全不一样。可能这些人有的是在撒谎，有的记忆受到外星人严重干扰、误导，或者是遇到了不同种类的外星人。
-
-从外星球回来后，由于受到强烈震撼，也隐约意识到外星人科技可以引起地球上天翻地覆的变化，当时疯狂的对外宣传这个事情。疯狂向有关单位写信，几十年时间里，估计写了数千封信，大约只有4、5封回信，回信都是铅字格式，上面是“这个事情与他们无关”这么冰冷冷的一句话，没有看到手工字迹的回信。
-
-由于长期写信，引起右手中指变形，期间还申请了新型钢笔的专利。
-
-我也带着资料上门找过有关单位，他们根本就不看我的资料，也不听我的解释。
-
-有网友说这些人可能无法接受一个农民遇到外星人的事情，认为这个事情太过于荒唐。
-
-其实很多情况下，我根本就没有提外星人的事情，有时候，我还没有开口说话，可能是他们看我衣服穿的不乍的，他们一开口就叫我滚出去！
-
-互联网传到农村，我又转移到网上，利用业余时间研究、宣传外星人科技，至今已经坚持了37年。
-
-很遗憾，仍然没有能够引起社会关注、重视。这个不光是很多网友，就是我自己也是感到疑惑不解，特别是我们现在处于互联网时代。 
-
-我打算在网上写文章，写科幻小说，争取出名，一旦出名，我带来的外星人的人工场扫描超前科技就会百分之百的被社会重视，就是有些人不高兴，但是，谁也是无法阻挡的。
-
-这个可能是我成功唯一的一条路，很多网友建议我搞实验，当然实验我不会放弃的，现在已经和网友合伙搞实验。只是我有一种直觉，我们的条件简陋，实验成功的可能性不大。
-
-很多网友对我写的电子书收费，提出了严厉的批评和谴责。
-
-我以前靠电焊和修理自行车为生活，最近因患肺结核和糖尿病，不能抡大锤，不能上工地，不能在工厂、工地上钻地下、上高处安装，很多活不敢接，收人锐减。
-
-我现在仍然在干电焊，因为电焊伤身体，年轻人都不愿意干，马马虎虎的有点生意，现在其他生意都不好做，如果不是前期有基础，刚开始创业，几乎都要赔钱。
-
-我申请低保被村干部拒绝【可能以前得罪了他们】，由于我农民身份没有保障，失去生活来源。想以写文章为生，使自己长期在网上宣传能够生存下来，望广大网友谅解。
-
-一，从家中被带走
-----------------------------------------
-
-我19岁那年的初夏，天气不是很热，我一个人睡在我老家前排房屋里【现在仍然在，没有被拆迁】，我的父母亲睡在后排房屋里【现在拆除了】，也有可能是睡在右边房屋里【现在仍然在】，现在记得不清楚。
-
-.. image:: media/image2.jpeg
-   :alt: 穿墙而过2
-   :width: 4.27083in
-   :height: 5.6875in
-
-19岁那年初夏我睡在我身后的房子里
-
-.. image:: media/image3.png
-   :alt: 农村老家5.png
-   :width: 3.25in
-   :height: 4.33333in
-
-我父母亲可能睡在靠右边的这个房子里
-
-我躺下时间不长，半梦半醒之间，突然感觉到屋子里变得红通通的，我被惊醒后，从床上爬起来，站在床边。看到墙壁上渗出一股发光的液体，这些液体发出暗红色夹杂着一些雪青色的光，当这些液体完全从墙壁里渗到屋里时候，逐渐的变成了几个人形。
-
-这些人身体像无数个飞舞的红色小虫子组合在一起，并且快速的、纷纷扰扰的扰动着。
-
-强烈的恐惧使我不停的颤抖，手脚和咽喉变得僵硬，而且都不听大脑指挥了。
-
-来的这些神秘人不说话，可我脑海里却好像听到了，不知道哪里来的一个标准的男性声音对我讲说：“跟我们一起出去”。
-
-这个时候，我人仍然是很清醒的，也记得很清楚，当时不是做梦。
-
-我正在发愣，突然感觉一股无形的力量从正面猛的扑到我身上，瞬间控制了我，特别是我头部，像被突然灌满了液体和细沙子之类的东西，一种强烈的木木、被东西充实的感觉。
-
-意识好像也被神秘力量强力控制了，变得模糊起来，大脑思考、判断都不利索了。整个人都不清醒了，各种感觉都好像钝化了。身体发飘，走路不稳当了。我也逐渐停止颤抖，害怕感觉也大大减轻了。
-
-我看到他们从墙壁上一穿而过，我好像是看到墙壁变成了半透明的，我也跟着一起穿过去。出去后，我才看到自己光着脚，只是穿了一个汗衫和裤衩，形象尽毁。
-
-我在接触墙时候，墙的土腥气味给我的印象特别深，还有，人在穿墙时候，身体各个部位都是有一种讲不出的感觉，和没有穿墙的感觉是不一样的，感觉有无数微小砂粒在我身体里轻轻的摩擦，并且伴有爽快的感觉。
-
-穿墙的感觉是墙的每一个分子都均匀的从我的身体里穿过去，而不是墙裂开一条缝隙让人穿过去的那一种。穿墙的速度不是很快，和平时走路的速度差不多。
-
-.. image:: media/image4.png
-   :alt: 穿墙而过1
-   :width: 4.53125in
-   :height: 6.05208in
-
-我就是从这儿穿墙而过
-
-我在从墙中要出来时候，脚后跟有一阵木痛，出来以后，木痛立即消失了。
-
-到了墙外，我又看到了两个人，一个人拿出一个东西对着墙壁照射，可能是由于这个东西的照射墙才变成半透明的。
+When I got outside the wall, I saw two more people. One of them took out a thing to illuminate the wall. It may be because of the irradiation of this thing that the wall became translucent.
 
 穿墙而过的人和墙外拿东西对墙照射的人，这些人是可以液体、固体随意变化的，他们的身体时时刻刻在微微的抖动，这些人看起来好像有一种飘忽不定的、不真实的感觉，我当时就认为他们这些浮动的人不是真人，可能就是一种机器人，后来得到了证实。
 
